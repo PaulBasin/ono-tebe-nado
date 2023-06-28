@@ -1,2 +1,2 @@
 привет! очень хорошая работа!))
-https://github.com/stas-basov/github.io
+https://github.com/stas-basov/ono-tebe-nado/
